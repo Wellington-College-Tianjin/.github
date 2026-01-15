@@ -1,6 +1,6 @@
 ![WCIT Logo](https://cmsstatic.wellingtoncollege.cn/cms_file_2/1627543668116_32c2322e.png?x-oss-process=image/interlace,1/resize,m_lfit,w_1200/quality,q_90/format,webp)  
 # Wellington College International Tianjin
-Our international school in Tianjin, China, prepares pupils for global success through our unique educational curriculum. Explore our story to see how our dynamic and inclusive learning environment traces back to our origin as one of the most respected academic institutions in the UK with a global network.
+Our international school in Tianjin, China, prepares pupils for global success through our unique educational curriculum. Our dynamic and inclusive learning environment traces back to our origin as one of the most respected academic institutions in the UK with a global network.
 
 ---
 
